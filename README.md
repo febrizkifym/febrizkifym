@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @febrizkifym
 - 👀 I’m interested in 'nothing'
 - 🌱 I’m currently learning 'nothing'
-- 📫 How to reach me 'u better not'
+- 📫 How to reach me 'u don't'
 
 - this is just repos dump, college purpose only. nothing to see here
 
